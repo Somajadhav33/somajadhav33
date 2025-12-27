@@ -72,7 +72,7 @@ Shikshanmaharshi Dr. Bapuji Salunkhe College, Miraj
 
 ## 📫 Let’s Connect
 
-* 📍 **Sangli, Maharashtra**
+* 📍 **Sangli, Maharashtra , INDIA**
 * 💼 **LinkedIn**: [linkedin.com/in/somajadhav3322](https://www.linkedin.com/in/somajadhav3322)
 * 🐙 **GitHub**: [github.com/Somajadhav33](https://github.com/Somajadhav33)
 * 📧 **Email**: [jadhavsomnath7005@gmail.com](mailto:jadhavsomnath7005@gmail.com)
